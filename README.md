@@ -1,2 +1,2 @@
 # Sagar-
-author - Sagar Pandey sagar or what 
+author - Sagar Pandey 
